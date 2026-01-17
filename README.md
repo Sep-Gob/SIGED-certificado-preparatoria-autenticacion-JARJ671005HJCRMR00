@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-JARJ671005HJCRMR00
+JARJ671005HJCRMR00
